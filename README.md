@@ -2,15 +2,15 @@
 
 ¡Ya están aquí! ¡Ya han llegado!
 
-¿Alguna vez te has encontrado una chorrada pseudocientífica en algún tuit? ¿Has visto algún comentario magufo a una noticia en algún periódico que te haya hecho carcajearte? ¿Te ha llegado alguna cadena antiloquesea por whatsapp? ¡No lo dudes! ¡Haz una captura de pantalla y envíanosla!
+¿Alguna vez te has encontrado una chorrada pseudocientífica en algún tuit? ¿Has visto algún comentario magufo a una noticia en algún periódico que te haya hecho carcajearte? ¿Te ha llegado alguna cadena antiloquesea por whatsapp? ¡No lo dudes! ¡Haz una captura de pantalla y envíanosla! ¿Que por qué? Pues porque convocamos la **I Edición de los premios Bardolini**.
 
 ¿Que por qué los llamamos premios Bardolini? Básicamente por esta frase, que ya se ha dado en llamar la 4ª ley de la termodinámica:
 
-> Bullshit Asymmetry Principle
+> **Bullshit Asymmetry Principle**
 
 > The amount of energy needed to refute bullshit is an order of magnitude bigger than to produce it.
 
-> ‒ [Alberto Brandolini](https://twitter.com/ziobrando/status/289635060758507521)
+> ‒ *[Alberto Brandolini](https://twitter.com/ziobrando/status/289635060758507521)*
 
 Alguien podría pensar que esto es negativo, destructivo, contraproducente... Hacemos esto "for the lulz". Para reírnos. Todo surgió por un comentario en twitter sobre uno de los candidatos, que decía que "valía un limonar". Siendo una broma recurrente entre los que ideamos este certamen, se nos fue un poco (léase bastante) el panchito con el rollo y llegamos a la conclusión de que sí, que merecía la pena, aunque sólo fuera por la diversión de hacerlo. 
 
