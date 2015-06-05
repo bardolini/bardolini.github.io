@@ -29,7 +29,7 @@ Y por las risas, claro. Siempre con humor. Nuestra intención no es ridiculizar 
 3. Independientemente de si el certamen es semanal o mensual, se puntuará a los candidatos con 1, 2 ó 3 puntos durante la semana siguiente a la publicación de la encuesta. Al final, quien más puntos tenga, se llevará el Premio Brandolini del mes en curso.
 
 4. Los candidatos se recopilarán por semanas naturales, esto es, de las 00:00 del lunes a  las 23:59 del domingo siguiente. 
-  1. Si el número de candidatos recogido en esa semana es superior a 10, se incluirán en una encuesta de Google Surveys que se votará del lunes al viernes de la semana siguiente. Los 3 con mayor puntuación, pasarán a la final mensual.
+  1. Si el número de candidatos recogido en esa semana es superior a 10, se incluirán en una encuesta de Surveymonkey que se votará del lunes al viernes de la semana siguiente. Los 3 con mayor puntuación, pasarán a la final mensual.
   2. En caso de no exceder dicho número, los candidatos semanales pasarán a la final mensual directamente.
 
 5. Los ganadores de cada mes pasarán automáticamente a una final anual en la que se concederá el I Premio Brandolini, consistente en una maravillosa imagen diseñada por nuestra compañera @Clarith.
