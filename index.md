@@ -1,6 +1,6 @@
 ---
 title: I Edición de los premios Brandolini
-tagline: The amount of energy needed to refute bullshit is an order of magnitude bigger than to produce it.
+tagline: La cantidad de energía requerida para refutar una memez es de un orden de magnitud superior a la necesaria para producirla
 ---
 
 ¡Ya están aquí! ¡Ya han llegado!
