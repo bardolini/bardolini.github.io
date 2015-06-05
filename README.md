@@ -1,12 +1,12 @@
-# I Edición de los premios Bardolini
+# I Edición de los premios Brandolini
 
 > The amount of energy needed to refute bullshit is an order of magnitude bigger than to produce it.
 
 ¡Ya están aquí! ¡Ya han llegado!
 
-¿Alguna vez te has encontrado una chorrada pseudocientífica en algún tuit? ¿Has visto algún comentario magufo a una noticia en algún periódico que te haya hecho carcajearte? ¿Te ha llegado alguna cadena antiloquesea por whatsapp? ¡No lo dudes! ¡Haz una captura de pantalla y envíanosla! ¿Que por qué? Pues porque convocamos la **I Edición de los premios Bardolini**.
+¿Alguna vez te has encontrado una chorrada pseudocientífica en algún tuit? ¿Has visto algún comentario magufo a una noticia en algún periódico que te haya hecho carcajearte? ¿Te ha llegado alguna cadena antiloquesea por whatsapp? ¡No lo dudes! ¡Haz una captura de pantalla y envíanosla! ¿Que por qué? Pues porque convocamos la **I Edición de los premios Brandolini**.
 
-¿Que por qué los llamamos premios Bardolini? Básicamente por esta frase, que ya se ha dado en llamar la 4ª ley de la termodinámica:
+¿Que por qué los llamamos premios Brandolini? Básicamente por esta frase, que ya se ha dado en llamar la 4ª ley de la termodinámica:
 
 > **Bullshit Asymmetry Principle**
 
