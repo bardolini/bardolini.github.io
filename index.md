@@ -21,6 +21,10 @@ Pero tenemos muy claro que esto también fomentará el pensamiento crítico entr
 
 Y por las risas, claro. Siempre con humor. Nuestra intención no es ridiculizar a nadie, queremos dejarlo claro. Se trata de pasar un buen rato aprendiendo por qué lo que citamos aquí es una burrada. Y leyendo las burradas, claro. Pero no se trata de señalar con el dedo a quien la ha dicho. Sino de señalarle que eso que ha dicho es inexacto. El que quiera entenderlo como una ofensa, se estará equivocando.
 
+## VOTACIONES
+
+* [15-21 de Junio](http://es.surveymonkey.com/s/TXRSBJ2) (abierta)
+
 ## BASES DEL CERTAMEN
 
 1. Se realizará una compilación mensual de burradas pseudocientíficas (y se incluye cualquier pseudociencia) que sean potencialmente divertidas; un ejemplo, es que alguien diga que el zumo de limón es alcalino porque rasca calcio del hueso y el calcio es un metal alcalino. Si alguien dice que la homeopatía funciona porque los nazis la aceptaban, no es divertido, es condenable. Y no entrará en concurso.
