@@ -23,7 +23,18 @@ Y por las risas, claro. Siempre con humor. Nuestra intención no es ridiculizar 
 
 ## VOTACIONES
 
-* [15-21 de Junio](http://es.surveymonkey.com/s/TXRSBJ2) (abierta)
+* Junio 2015
+  * [Final](https://es.surveymonkey.com/r/QWCBC5F)
+
+* Julio 2015
+  * [I Semifinal](https://es.surveymonkey.com/r/QW3KMMH)
+
+## RESULTADOS
+
+* Junio 2015
+  * [I edición semanal](https://borregosilluminati.wordpress.com/2015/06/22/resultados-i-edicion-semanal-y-enlace-ii-edicion-semanal/)
+  * [II edición semanal](https://borregosilluminati.wordpress.com/2015/06/29/resultados-ii-edicion-semanal-y-enlace-a-la-iii-edicion-semanal/)
+  * [III edición semanal](https://borregosilluminati.wordpress.com/2015/07/06/resultados-iii-edicion-semanal-enlace-a-la-i-semifinal-de-julio-y-enlace-a-la-final-de-junio/)
 
 ## BASES DEL CERTAMEN
 
